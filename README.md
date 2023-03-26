@@ -4,4 +4,4 @@
 Мне 30 лет
 У меня высшее экономическое образование
 
-https://i.pinimg.com/236x/05/30/4c/05304c9e8d8b327db682d23cde2244b3.jpg
+https://klike.net/uploads/posts/2019-02/1550472288_1.jpg
